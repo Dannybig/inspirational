@@ -1,0 +1,2 @@
+# inspirational
+Hard work pays
